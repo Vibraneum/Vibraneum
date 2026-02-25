@@ -1,4 +1,4 @@
 hello chat
 the air sucks 
 so i like sitting inside, and writing code with my friends who are ai.
-this entire year wouldve been green on the chart if not for feature branches 2025🏳️
+2025 was feature branches, but 2026 i show up everyday to build personhood.social, some side tasks/projects and experiments with new creations.
